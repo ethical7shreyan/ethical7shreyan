@@ -13,8 +13,8 @@
 
 ### 📫 How to reach me: shreyanbanerjee609@gmail.com - just contact me in this mail
 
-- 😄 Pronouns: Don't Know 乁(•_•)ㄏ
+- 😄 Pronouns: Don't Know
 
-- ⚡ Fun fact: Don't Know 乁(•_•)ㄏ
+- ⚡ Fun fact: Don't Know
 
 - THANKS FOR READING MYBIO.md (^_^)ﾉ
