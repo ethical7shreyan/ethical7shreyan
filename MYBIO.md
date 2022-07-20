@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning Ethical Hacking, Termux (Adv), Computer Sc (Basic) ᕙ(:˘∧˘:)ᕗ
 
-- ⭐ My Dream to Work on The Microsoft, IBM, IT Sector ♡
+- ⭐ My Dream is to Work on The Microsoft, IBM, IT Sector ♡
 
 - 🤔 I’m looking for help with Nothing Cause I am a Lone Wolf ᕦ(ò_óˇ)ᕤ
 
@@ -13,8 +13,5 @@
 
 ### 📫 How to reach me: shreyanbanerjee609@gmail.com - just contact me in this mail
 
-- 😄 Pronouns: Don't Know
-
-- ⚡ Fun fact: Don't Know
 
 - THANKS FOR READING MYBIO.md (^_^)ﾉ
