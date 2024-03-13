@@ -11,7 +11,7 @@
 
 - 💬 Ask me about Anything Related To Termux, Ethical Hacking, Kali Linux i will do my best to solve your problem ^_^
 
-### 📫 How to reach me: shreyanbanerjee609@gmail.com - just contact me in this mail
+### 📫 How to reach me: shreyanbanerjee609@gmail.com - just contact me in this mail by print"(REQUEST SOLUTION)"
 
 
 - THANKS FOR READING MYBIO.md (^_^)ﾉ
